@@ -1,2 +1,2 @@
-# Discord-Nitro-Sniper
-Discord Nitro Sniper Made by me don't skid weird ass nigga 
+# Big Murda Shit 👹
+capo#1800 on cord owns dis bih
